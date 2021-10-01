@@ -1,1 +1,1 @@
-# Museum-of-candy
+# Museum Of Candy
